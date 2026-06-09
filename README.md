@@ -106,4 +106,4 @@ B.Tech – Artificial Intelligence and Data Science
 
 GitHub: https://github.com/Raga2005
 
-LinkedIn: [Your LinkedIn Profile]
+LinkedIn: [https://www.linkedin.com/in/raga-r/]
